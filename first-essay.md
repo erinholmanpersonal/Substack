@@ -1,4 +1,4 @@
-Will a great keyboard make you a more prolific writer?
+Can a keyboard make you a more prolific writer?
 
 We are about to find out.
 
